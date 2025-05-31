@@ -13,3 +13,4 @@
 ![difference_between_sql_and_mysql](https://github.com/user-attachments/assets/c880bab7-2ee1-4653-ba67-8460e628ea9a)
 ![desktop-wallpaper-4-python-programming-python-logo](https://github.com/user-attachments/assets/b19aadb3-f604-4425-8887-a788bc5d597f)
 ![power-bi-icon-logo-png_seeklogo-439962](https://github.com/user-attachments/assets/26f2692e-b77a-48ce-9e31-15f4de1498d2)
+![1728396933575](https://github.com/user-attachments/assets/18385c4a-3ad3-43f8-a01b-d6b5f17210bf)
